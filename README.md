@@ -1,3 +1,5 @@
+[中文版介绍](https://github.com/tikhunter/tikhunter.com/blob/main/README_CN.md)
+
 # Tikhunter
 ##### Introduction
 [Tikhunter Official Website](https://www.tikhunter.com)
