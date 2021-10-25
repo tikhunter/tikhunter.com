@@ -38,3 +38,8 @@ According to many community members' need, we will make it partly open to  our m
 
 ## What else?
 We are waiting for you, :D!
+
+[Tikhunter Official Website](https://www.tikhunter.com)
+[Tikhunter Official Twitter](https://twitter.com/tikhunterglobal)
+[Tikhunter Official Facebook](https://facebook.com/tikhunterglobal)
+[Tikhunter Official Medium](https://tikhunter.medium.com)
