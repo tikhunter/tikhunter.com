@@ -42,3 +42,11 @@ Tiktok正在走着中国版的抖音在走的路，早起的Tiktok仅仅支持�
 
 ## 还有啥?
 欢迎骚扰！
+
+### [Tikhunter官方网站](https://www.tikhunter.com)
+
+### [Tikhunter官方Twitter](https://twitter.com/tikhunterglobal)
+
+### [Tikhunter官方Facebook](https://facebook.com/tikhunterglobal)       
+
+### [Tikhunter官方Medium](https://tikhunter.medium.com)
